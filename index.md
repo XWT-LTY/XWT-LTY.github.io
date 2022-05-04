@@ -7,6 +7,7 @@
 
 # 一起观影记录
 
+![  ](https://bkimg.cdn.bcebos.com/pic/faedab64034f78f0beb6082b7f310a55b2191cac?x-bce-process=image/watermark,image_d2F0ZXIvYmFpa2UxODA=,g_7,xp_5,yp_5/format,f_auto)
 >情书 ——深埋多年却始终沉静的爱情，第一次约会看的电影(*๓´╰╯`๓)！
 
 >我和我的父辈 ——单位团建活动一起观影，第一次坐情侣座，非常宽敞(✪ω✪)
